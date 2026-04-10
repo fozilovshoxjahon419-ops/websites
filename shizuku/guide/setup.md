@@ -1,3 +1,4 @@
+hakerlar telefonimi buzb krishga ruxsat berean bemalol nma qsela qlorilar
 # User manual
 
 [[toc]]
